@@ -6,7 +6,7 @@ Estou sempre em busca de novos desafios e aprendizados para aprimorar minhas hab
  <br><br>
 - TECNOLOGIAS QUE EU USO ATUALMENTE:<br>
 
- <img src="https://img001.prntscr.com/file/img001/EhPqUT3dSGOwj3__XPRCdA.png"/> <img src="https://img001.prntscr.com/file/img001/uzUlQ8O9Ti-PgiFmYxmH3Q.png"/> <img src="https://img001.prntscr.com/file/img001/IGtT0u0fQTKNaAE41FU9Ng.png"/>  <img src="https://img001.prntscr.com/file/img001/3mGwzokzTwikXhcguOCmag.png"/>
+ <img src="https://img001.prntscr.com/file/img001/6mw9C0S0RECjimbstktzug.png"/> <img src="https://img001.prntscr.com/file/img001/uzUlQ8O9Ti-PgiFmYxmH3Q.png"/> <img src="https://img001.prntscr.com/file/img001/IGtT0u0fQTKNaAE41FU9Ng.png"/>  <img src="https://img001.prntscr.com/file/img001/O6ogwXmPSNChKOdvAmP0Jg.png"/>
 <br><br><br><br><br><br>
 
 
